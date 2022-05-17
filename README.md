@@ -1,0 +1,2 @@
+# garic
+Zaclinanie i svoistva
